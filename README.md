@@ -6,4 +6,4 @@
 https://github.com/Sossmc/Balife/blob/master/balife.pdf
 
 **视频**
-http://101.132.135.132/asset/balife.mp4
+https://zjuqsc.top/archived/balife.mp4
